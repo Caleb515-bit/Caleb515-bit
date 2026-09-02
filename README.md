@@ -31,6 +31,6 @@ I am an Electrical Engineering student, Web Developer, and Technical Content Cre
 ---
 
 ### 📬 How to Reach Me
-* 💼 **LinkedIn:**(https://www.linkedin.com/in/augustine-caleb-572572314?utm_source=share_via&utm_content=profile&utm_medium=member_android)
+* 💼 **Instagram:**(https://www.instagram.com/calebbuild?igsi=MWlkaHozd3lqYXJqYg==)
 * 📺 **YouTube:** (https://youtube.com/@caleb_lab?s(https://youtube.com/@caleb_lab?si=VBk51Z-QFRbDmRRD)
 * 📧 **Email:** (calebchidi455@gmail.com)
